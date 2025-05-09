@@ -11,7 +11,7 @@ I’m looking to collaborate on real-world Minecraft mapping. I’m always eager
 
 ### 📫 How to Reach Me  
 - **Email**: 21520890@gm.uit.edu.vn - lngiahung1232003@gmail.com  
-- **LinkedIn**: [updating]  
+- **LinkedIn**: https://www.linkedin.com/in/lngiahung1203  
 - **Portfolio**: [updating]  
 
 ### ⚡ Fun Fact  
